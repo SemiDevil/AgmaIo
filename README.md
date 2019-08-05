@@ -1,0 +1,2 @@
+# AgmaIo
+Free Coins
